@@ -1,0 +1,1 @@
+Bu repository deneme amaçlıdır. 
